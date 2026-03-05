@@ -1,2 +1,0 @@
-# NovalStoreOfficial
-website store noval 
